@@ -1,3 +1,4 @@
 # MyCode
-Everything I coded/
-List will be extended with time
+Everything I coded 		       
+Lots of Ideas and mini Pojekts will be added  									    			                                
+(List will be extended with time)  
